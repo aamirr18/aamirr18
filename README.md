@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **Mohdamir1116@gmail.com**
 
-- 📄 Know about my experiences [http://surl.li/iawks](http://surl.li/iawks)
+- 📄 Know about my experiences [[http://surl.li/iawks](http://surl.li/iawks)](http://surl.li/jeijo)
 
 - ⚡ Fun fact **I think I am funny**
 
